@@ -1,3 +1,0 @@
-# cca
-cca isddd
-demobbbb
